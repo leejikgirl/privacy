@@ -134,7 +134,7 @@ Leejikgirl 은 정보주체의 이용정보를 저장하고 수시로 불러오�
 
 성명 :최선아
 
-연락처 :01089528239, leejikgirl@gmail.com, 
+연락처 :01046780794, leejikgirl@gmail.com, 
 
 ※ 개인정보 보호 담당부서로 연결됩니다.
 
